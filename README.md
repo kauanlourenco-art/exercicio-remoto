@@ -1,1 +1,1 @@
-Kauan - Sistema da Informação
+Alteração feita pelo navegador
